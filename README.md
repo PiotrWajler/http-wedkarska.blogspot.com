@@ -1,0 +1,1 @@
+# http-wedkarska.blogspot.com
